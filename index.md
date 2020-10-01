@@ -1,3 +1,3 @@
 # Welcome to my blog
-
+Blog is everything that you got for joy!!!!
 I'm glad you are here. I plan to talk about ...
